@@ -1,1 +1,0 @@
-# html-github-project2-happystay-rent-room
